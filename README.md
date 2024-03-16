@@ -1,2 +1,0 @@
-# eduardosiman.github.io
- 
